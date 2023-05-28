@@ -1,1 +1,0 @@
-# mustaqil_ish
